@@ -6,6 +6,6 @@
 
 
 ## 小火箭资源分享站
-可以点击小星星收藏本文章，但不要收藏小火箭资源分享站因为地址被墙后，我会在这里放最新的地址。没有共识后续就无法再找到小火箭资源分享站喽👉[小火箭资源分享站·内置 Apple ID](https://xhj.jd0901.top)
+👉[小火箭资源分享站·内置 Apple ID](https://xhj.jd0901.top)
 
 <br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br>
