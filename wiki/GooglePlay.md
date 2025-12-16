@@ -1,5 +1,4 @@
 # 谷歌框架 GooglePlay 商店服务/小米/红米/oppo/vivo/华为/荣耀
-🕛 **更新时间 ：`2025年10月21日09时`**  
 ⭐ **如果喜欢 [前往首页](https://github.com/wangzai69/fanqiang) ⭐ Star 收藏**  
 
 <br>
