@@ -1,6 +1,6 @@
 # 2026年01月更新🚀镜像下载官方Clash、Shadowrocket、共享美区ID、AppleID、小火箭
 
-❤️ **如果觉得不错可点⭐Star 收藏**  
+❤️ **如果觉得不错可点⭐Star 收藏**   
 <br><br>
 
 ## 目录
