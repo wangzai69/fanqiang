@@ -18,3 +18,6 @@
 |09.[推特 Twitter 安装并解除敏感](https://github.com/wangzai69/fanqiang/blob/main/wiki/twitter/Twitter.md)             |
 
 <br><br>
+
+
+![Star History Chart](https://api.star-history.com/svg?repos=KaWaIDeSuNe/wangzai69&type=Date)
