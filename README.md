@@ -7,7 +7,7 @@
 
 | 经典分享丨更多文章更新中 | 
 |------|
-|01.[精选性价比翻墙梯子节点机场 vpn](https://github.com/wangzai69/ji-chang)                |
+|01.[性价比机场推荐精选翻墙梯子节点vpn](https://github.com/wangzai69/ji-chang)                |
 |02.[镜像下载 Clash 等官方代理工具](https://github.com/wangzai69/fanqiang/blob/main/android/Clash.md)              |
 |03.[免费共享美区AppleID下载Shadowrocket小火箭](https://xhj.jd0901.top)   |
 |04.[租借Apple ID](https://xddsd.top)   |
