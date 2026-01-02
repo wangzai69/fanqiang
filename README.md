@@ -19,5 +19,3 @@
 
 <br><br>
 
-
-![Star History Chart](https://api.star-history.com/svg?repos=KaWaIDeSuNe/wangzai69&type=Date)
