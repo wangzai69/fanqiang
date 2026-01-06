@@ -8,6 +8,7 @@
 
 | 经典分享丨更多文章更新中 | 
 |------|
+|00.[领取免费共享ID](https://github.com/wangzai69/fanqiang/blob/main/ios/id.md)|
 |01.[精选推荐翻墙梯子节点机场 vpn](https://github.com/wangzai69/fanqiang/blob/main/%E7%B2%BE%E9%80%89%E6%9C%BA%E5%9C%BA%E6%8E%A8%E8%8D%90.md)|
 |02.[镜像下载 Clash 等官方代理工具](https://github.com/wangzai69/fanqiang/blob/main/android/Clash.md)|
 |03.[免费共享美区AppleID下载Shadowrocket小火箭](https://xhj.jd0901.top)|
