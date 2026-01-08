@@ -18,5 +18,3 @@
 |07.[小米/红米/oppo/vivo/华为/荣耀/谷歌框架](https://github.com/wangzai69/fanqiang/blob/main/wiki/GooglePlay.md)|
 |08.[免拔卡 TikTok 苹果安卓教程](https://github.com/wangzai69/fanqiang/blob/main/wiki/TikTok.md)|
 |09.[推特 Twitter 安装并解除敏感](https://github.com/wangzai69/fanqiang/blob/main/wiki/twitter/Twitter.md)|
-
-<br><br>
