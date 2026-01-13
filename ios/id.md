@@ -1,1 +1,3 @@
-### ID免费共享网（访问密码：7890）👉：https://fx.xdd.net.tr/share/wRjpcyhumY
+### ID免费共享网👇👇👇
+### https://fx.xdd.net.tr/share/wRjpcyhumY
+### 进Q群领访问密码：792588600
