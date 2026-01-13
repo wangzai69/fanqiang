@@ -1,1 +1,1 @@
-进Q群：792588600（领取免费共享ID）
+### ID共享地址（密码：7890）👉：https://fx.xdd.net.tr/share/wRjpcyhumY
