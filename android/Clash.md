@@ -43,7 +43,7 @@
 
 ### iOS 代理工具
 
-- [获取共享美区ID下载 Shadowrocket ](https://fx.xdd.net.tr/share/wRjpcyhumY)
+### 👉👉👉[Apple ID 免费共享网](https://fx.xdd.net.tr/share/wRjpcyhumY)👈👈👈
 
 | 名称        | 最新版本  | 文件大小  | 描述      | 下载      |
 |-------------|-----------|-----------|-----------|-----------|
@@ -75,7 +75,7 @@
 
 ### MacOS 代理工具
 
-- [获取共享美区ID下载 Shadowrocket ](https://fx.xdd.net.tr/share/wRjpcyhumY)
+### 👉👉👉[Apple ID 免费共享网](https://fx.xdd.net.tr/share/wRjpcyhumY)👈👈👈
 
 | 代理工具名称    | 最新版本  | 文件大小  | 描述  | 安装       |
 |----------------|-----------|-----------|------|-------------|
